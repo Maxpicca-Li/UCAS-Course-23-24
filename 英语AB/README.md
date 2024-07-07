@@ -37,7 +37,7 @@
 
 **备考推荐：**[试卷结构表+做题技巧+词汇积累](./试卷结构表+做题技巧+词汇积累.xlsx)
 
-**备考资料：**https://pan.baidu.com/s/1_TvNLgQw4TMtLprYNeMPNg?pwd=uua4
+**备考资料**：https://pan.baidu.com/s/1_TvNLgQw4TMtLprYNeMPNg?pwd=uua4
 
 表1：结构表+备考。用于备考参考。
 
